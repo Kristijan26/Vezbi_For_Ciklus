@@ -1,0 +1,1 @@
+# Vezbi_For_Ciklus
